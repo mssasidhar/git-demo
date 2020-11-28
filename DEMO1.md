@@ -8,4 +8,4 @@ BANGALORE - NEW PONNNN
 
 N
 
-gayatri ranga
+gayatri ranga jyothsna mannava
